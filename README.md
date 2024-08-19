@@ -1,1 +1,1 @@
-- Computer Science Master Degree Student (https://informatica.unical.it/)[@Unical]
+- Computer Science Master Degree Student [@Unical](https://informatica.unical.it/)
