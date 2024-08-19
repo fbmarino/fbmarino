@@ -1,1 +1,1 @@
-- Computer Science Master Degree Student [@Unical](https://informatica.unical.it/)
+- 🧑‍🎓 Computer Science Master Student [@Unical](https://informatica.unical.it/)
